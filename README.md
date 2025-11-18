@@ -7,6 +7,7 @@
 
 ## favourite music bands: twenty one pilots | the smiths | death in june
 <img width="640" height="480" alt="image" src="https://github.com/user-attachments/assets/46eac2be-91a5-4b2c-a3d3-8d9613e93b74" />
+<img width="650" height="368" alt="image" src="https://github.com/user-attachments/assets/f5860608-f5e5-4a45-a75c-4647cd825bae" />
 
 
 
