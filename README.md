@@ -3,7 +3,7 @@
 
 
 ## my active interests: COD Zombies | FAITH The Unholy Trinity | Classic Slasher Movies
-<img width="498" height="415" alt="image" src="https://github.com/user-attachments/assets/4bee343f-589f-4fec-826c-3182526e0016" />
+
 
 ## favourite music bands: twenty one pilots | the smiths | death in june
 <img width="640" height="480" alt="image" src="https://github.com/user-attachments/assets/46eac2be-91a5-4b2c-a3d3-8d9613e93b74" />
