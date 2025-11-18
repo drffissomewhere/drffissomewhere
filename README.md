@@ -1,8 +1,17 @@
-## ▶︎▶︎Somewhere...
-<img width="374" height="498" alt="image" src="https://github.com/user-attachments/assets/85fbe7eb-48bd-4258-9c94-5e2379132c73" />
+## ▶︎▶︎𝑺𝒐𝒎𝒆𝒘𝒉𝒆𝒓𝒆. . . 𝒏𝒆𝒂𝒓 𝒚𝒐𝒖
+<img width="640" height="358" alt="image" src="https://github.com/user-attachments/assets/613f4333-e715-41b4-82fb-f04fcadb8a91" />
 
-## dunno what to write here
-<img width="498" height="280" alt="image" src="https://github.com/user-attachments/assets/3a4f1786-4838-487c-b13f-76e0cf4525a7" />
+
+## my active interests: COD Zombies | FAITH The Unholy Trinity | Classic Slasher Movies
+<img width="498" height="415" alt="image" src="https://github.com/user-attachments/assets/4bee343f-589f-4fec-826c-3182526e0016" />
+
+## favourite music bands: twenty one pilots | the smiths | death in june
+<img width="640" height="480" alt="image" src="https://github.com/user-attachments/assets/46eac2be-91a5-4b2c-a3d3-8d9613e93b74" />
+
+
+
+##                                   ▶︎ dunno what else to write here 
+ 
 
 <!--
 **drffissomewhere/drffissomewhere** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
