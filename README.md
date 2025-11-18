@@ -1,6 +1,8 @@
 ## Somewhere...
 <img width="374" height="498" alt="image" src="https://github.com/user-attachments/assets/85fbe7eb-48bd-4258-9c94-5e2379132c73" />
 
+## dunno what to write here
+<div class="tenor-gif-embed" data-postid="17816586" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/pumpkin-halloween-jack-o-lantern-carved-pumpkin-blumhouse-gif-17816586">Pumpkin Halloween GIF</a>from <a href="https://tenor.com/search/pumpkin-gifs">Pumpkin GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 <!--
 **drffissomewhere/drffissomewhere** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
