@@ -1,5 +1,5 @@
 ## ▶︎▶︎𝑺𝒐𝒎𝒆𝒘𝒉𝒆𝒓𝒆. . . 𝒏𝒆𝒂𝒓 𝒚𝒐𝒖
-<img width="640" height="358" alt="image" src="https://github.com/user-attachments/assets/613f4333-e715-41b4-82fb-f04fcadb8a91" />
+![photo_5312206179981267310_x](https://github.com/user-attachments/assets/1142cd41-998f-4239-8ba7-9347ebbeed3d)
 
 
 ## my active interests: COD Zombies | FAITH The Unholy Trinity | Classic Slasher Movies
